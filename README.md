@@ -1,5 +1,5 @@
 ###  👋
-### Bem-vindo ao meu perfil 👋
+### Bem-vindo ao meu perfil 
 
 - 📫 Contate-me no email: araujog663@gmail.com
 - 🏛️ Ciências da Computação - IMT
